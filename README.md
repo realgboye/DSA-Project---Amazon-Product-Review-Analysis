@@ -44,7 +44,8 @@ Microsoft Excel:
 
 ![WhatsApp Image 2025-07-18 at 23 26 31_4c8732cb](https://github.com/user-attachments/assets/30bf157f-62cd-46a8-ba8d-896e4647a825)
 
-![WhatsApp Image 2025-07-18 at 23 28 56_520987ed](https://github.com/user-attachments/assets/589f6aac-73b5-4aee-9a25-bae378ef01bd)
+
+![WhatsApp Image 2025-07-18 at 23 27 14_759244ee](https://github.com/user-attachments/assets/f0f1cbe8-2834-4a75-b997-a33a14ceae2f)
 
 
 
